@@ -1,6 +1,6 @@
 ## Я хочу быть
-как все эти
-дельфины  ![7414742](https://github.com/user-attachments/assets/13374013-5be3-4877-b93f-5e7f9cb2eee2)![7414742](https://github.com/user-attachments/assets/f10a8869-946c-45dc-830f-5c0b79909428)![7414742](https://github.com/user-attachments/assets/06293c90-611a-48fa-897d-cdb1ff2027f4)
+как все эти дельфины 
+![7414742](https://github.com/user-attachments/assets/13374013-5be3-4877-b93f-5e7f9cb2eee2)![7414742](https://github.com/user-attachments/assets/f10a8869-946c-45dc-830f-5c0b79909428)![7414742](https://github.com/user-attachments/assets/06293c90-611a-48fa-897d-cdb1ff2027f4)
 
 
 
