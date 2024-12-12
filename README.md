@@ -1,4 +1,5 @@
-## Я хочу быть как все эти дельфины ....
+## Я хочу быть как все эти дельфины .... ![7414742](https://github.com/user-attachments/assets/13374013-5be3-4877-b93f-5e7f9cb2eee2)
+
 
 <!--
 **coddestroyer/coddestroyer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
